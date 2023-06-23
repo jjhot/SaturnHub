@@ -1,2 +1,1 @@
-# SaturnHub
-Da hood gui
+MAKE SURE TO JOIN THE DISCORD FOR UPDATES
